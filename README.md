@@ -1,1 +1,1 @@
-# Quan-ly-dan-he-thong-thong-tin
+# Quan-ly-du-an-he-thong-thong-tin
